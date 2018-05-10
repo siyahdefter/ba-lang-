@@ -1,0 +1,2 @@
+# ba-lang-
+ilk deneyimim
